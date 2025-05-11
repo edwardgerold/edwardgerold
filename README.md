@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 
 - 💬 Ask me about my WEB3 experiences or AI trends!
 
-- 📫 Reach me at @edwardgerold or on LinkedIn.
+- 📫 Reach me at @edwardgerold on X or on LinkedIn.
 
 - ⚡ Fun fact: I built a simple e-commerce platform using blockchain!
